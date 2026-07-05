@@ -1,4 +1,4 @@
-# https://maniksharma.xyz
+# https://sudofahh.github.io/website-old/
 
 ez
 
